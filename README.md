@@ -1,1 +1,1 @@
-https://hmxagency25.github.io/hmx/
+https://hisham-tech.github.io/hmx/
